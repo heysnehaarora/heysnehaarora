@@ -1,0 +1,1 @@
+Experienced educator in AI and career skills, passionate about helping professionals future-proof their careers. Sharing knowledge and resources to navigate tech disruptions, upskill, and thrive in AI-driven job markets. Leading IconsBase to provide career-ready skills for a changing world!
